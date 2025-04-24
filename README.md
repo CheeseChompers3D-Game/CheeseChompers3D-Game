@@ -95,3 +95,5 @@ The **Cheese Chompers 3D** community is growing rapidly, with players sharing th
 Ready to jump into the cheesy chaos? Try [**Cheese Chompers 3D**](https://cheesechompers3d.io) today and experience the hilarious rat-powered mayhem that's taking the browser gaming world by storm!
 
 Whether you're a casual gamer looking for some quick fun or a competitive player seeking a new challenge, **Cheese Chompers 3D** offers an addictive mix of simplicity, chaos, and skill that will keep you coming back for more. Join the rodent revolution and see if you have what it takes to be the last rat standing! 
+[link](https://www.websitecarbon.com/website/cheesechompers3d-io/)
+[link](https://www.websitecarbon.com/website/crazycattle-3d-com/)
